@@ -1,5 +1,5 @@
 # my-summer-in-markdown
-## schoolagy questions in order before I realized I only had to do five
+## schoology questions in order before I realized I only had to do five
 * Im Abhi im a 12th grader
 * I shadowed a photographer over summer
 * i dont have a favorite book or movie but bladerunner is pretty good
